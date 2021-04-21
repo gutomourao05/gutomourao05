@@ -2,6 +2,6 @@
 
 🌱 I am looking for an opportunity in the development area
 
-👯 here are some of my projects
+👯 Here are some of my projects
 
 📫 How to reach me: gutomourao05@gmail.com
