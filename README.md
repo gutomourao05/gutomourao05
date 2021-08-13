@@ -1,3 +1,3 @@
-🔭 Hi dear , I'm José Augusto
+🔭  Hi dear , I'm José Augusto
 
-📫 How to reach me: gutomourao05@gmail.com
+📫  How to reach me: gutomourao05@gmail.com
